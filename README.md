@@ -12,7 +12,7 @@
 - if u want my attention:
     * whisper (preferred)
     * boop
-- 💤: afk, w2i
+- 💤: afk, whisper
 - c+h: 👍
 - i have social anxiety! i do not know how to talk to ppl! sorry! 💔
 
