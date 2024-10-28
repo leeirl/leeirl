@@ -12,7 +12,7 @@
     * boop
 - 💤: afk, w2i
 - c+h: 👍
-- i have social anxiety! i do not know how to talk to ppl! sorry! >.<
+- i have social anxiety! i do not know how to talk to ppl! sorry! 💔
 
  ### big 3:
  - Gravity Falls
