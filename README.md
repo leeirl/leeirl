@@ -1,16 +1,22 @@
-## Hi there 👋
+# //~~ HELLO EVERYPONY ^^ ~~//
 
-<!--
-**leeirl/leeirl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### IRL:
+- my name is Lee (surprise!)
+- they/them/any
+- 19
 
-Here are some ideas to get you started:
+### interactions:
+- minors dni 🔞
+- if u want my attention:
+    * whisper (preferred)
+    * boop
+- 💤: afk, w2i
+- c+h: 👍
+- i have social anxiety! i do not know how to talk to ppl! sorry! >.<
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ ### big 3:
+ - Gravity Falls
+ - Sonic the Hedgehog
+ - MLP
+ 
+uhhhh ig that's it 4 now byeeee <33
