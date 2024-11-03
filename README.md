@@ -21,10 +21,10 @@
  ### 🥇:
  - Gravity Falls
  - Sonic the Hedgehog
- - Mob Psycho
 
 ### 🥈:
  - MLP
  - TF2
+ - Mob Psycho
 
 byeeee thanks for reading <33
