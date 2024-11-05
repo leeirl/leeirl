@@ -19,12 +19,11 @@
 <img src="https://i.pinimg.com/736x/32/50/e3/3250e3e7011871b2dfa94583789ed770.jpg" width="300" />
 
  ### 🥇:
+ - Mob Psycho
  - Gravity Falls
  - Sonic the Hedgehog
 
 ### 🥈:
  - MLP
  - TF2
- - Mob Psycho
-
 byeeee thanks for reading <33
