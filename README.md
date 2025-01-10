@@ -4,7 +4,7 @@ hiiii ^^
 
 ### about me:
 - he/they
-- 20
+- lvl 20
 
 ### ⚠️:
 - minors DNI 🫵🔞
