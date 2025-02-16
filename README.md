@@ -4,11 +4,12 @@ hiiii
 
 ### about me:
 - he/they
-- lvl 20
+- 20
 
 ### ⚠️:
-- minors DNI 🫵🔞
+- minors dni 🔞
+- i'm awkward asf but feel free to talk to me
 - if u can't get my attention feel free to whisper :3
-- i don't mind talking but i am sososo awkward 💔 sorry
+ 
 
-byeeee 🤙
+🤙
