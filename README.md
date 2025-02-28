@@ -6,7 +6,7 @@
 
 ### ⚠️:
 - minors dni 🔞
-- i'm awkward asf but feel free to talk to me
+- i'm awkward asf but i like chatting i swear
 - if u can't get my attention feel free to whisper :3
 
 🤙
