@@ -3,6 +3,5 @@
 ### hiii
 - he/they
 - 20
-- if u can't get my attention feel free to whisper :3
 
 🤙
