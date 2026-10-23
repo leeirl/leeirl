@@ -1,4 +1,4 @@
-usually semi-afk, feel free to whisper! :3
+might be afk, feel free to whisper! :3
 
 C + H 👍👍👍
 
