@@ -2,4 +2,4 @@ might be afk, feel free to whisper! :3
 
 C + H 👍👍👍
 
-<img src="https://img1.picmix.com/output/pic/normal/7/8/2/9/11929287_b3935.gif" width="300" />
+<img src="https://giphy.com/gifs/67-6-7-61-V5huUSKSZEKcesHkXr" width="300" />
